@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @locomotivepenis
 - 👀 I’m interested in men
-- 🌱 I’m currently learning the ways of urmom
-- 💞️ I’m looking to collaborate on the bed
+- 🌱 I’m currently learning idk
+- 💞️ I’m not looking to collaborate
 - 📫 How to reach me: tap my shoulder
 
 <!---
